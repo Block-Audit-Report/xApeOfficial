@@ -1,3 +1,3 @@
 # xApeOfficial
 
-![Certificate_xApe](https://user-images.githubusercontent.com/81981737/152944487-bf4491b1-439c-4586-bb18-db3d8dd72520.jpg)
+![xapeofficial](https://user-images.githubusercontent.com/121312707/229483557-2d5a8bcf-b9c6-495b-a08a-96b38d2ec6c4.png)
